@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sbk34
+- 👋 Hi, I’m skillz34 
 - 👀 I’m interested in ..leaarning coding a programmimg ..
 - 🌱 I’m currently learning ..Pen testing.
 - 💞️ I’m looking to collaborate on ... gcoding for cnc, programming, maintenance,repair,runnning of tbese types of programs. who knows whT THERE DOING?. dyno tunning for hi performance mapping of ecu module controllers. im am pretty new to all this so go easy on me yal. 
